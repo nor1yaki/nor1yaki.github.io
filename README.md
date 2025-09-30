@@ -1,0 +1,1 @@
+# nor1yaki.github.io
